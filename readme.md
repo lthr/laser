@@ -1,4 +1,4 @@
-# Laserjolle
+# Laser
 Nyttige links om laserjolle- og udstyr.
 
 ## Udstyr
