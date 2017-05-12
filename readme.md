@@ -1,7 +1,7 @@
 # Laser
 Nyttige links om laserjolle- og udstyr.
 
-![](https://i.ytimg.com/vi/yXQSJAulSxo/maxresdefault.jpg)
+![](http://www.sailfitter.com/Big%20tues3L.JPG)
 
 ## Generel information
 * [Laser Sailing Tips](https://lasersailingtips.com/)
