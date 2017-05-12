@@ -1,2 +1,4 @@
-# Laser Dinghy
-### A curated list about all there is to know about the Laser dinghy
+# Laserjolle
+#### Nyttige links om laserjolle
+
+## Forhandlere af laserjolle- og udstyr
